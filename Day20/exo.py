@@ -1,0 +1,1 @@
+# Je ne pouvais pas faire les exercices car les site ne sont plus a jour ou sont proteges
